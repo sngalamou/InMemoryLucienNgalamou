@@ -1,7 +1,7 @@
 # InMemoryLucienNgalamou
 Website for information on Dr. Lucien Aime Ngalamou Pideu.
 
-he Ngalamou Family has suffered the most unimaginable loss: the death of their Father,riend Dr. Lucien Aimé Ngalamou, Professor of Computer Engineering at Lewis University in Romeoville.  
+The Ngalamou Family has suffered the most unimaginable loss: the death of their Father,riend Dr. Lucien Aimé Ngalamou, Professor of Computer Engineering at Lewis University in Romeoville.  
 
 Dr. Ngalamou, a gentle soul, was heading home from church on Saturday, August 19th, 2023 when his vehicle was struck. Our beloved did not survive the injuries and left this world unexpectedly. His last activity on earth was worship.  
 
